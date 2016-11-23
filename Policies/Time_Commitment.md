@@ -14,9 +14,9 @@ Your commitment is to show up and build software between 8:30am to 6pm. Anything
 
 If you are going to be late and/or miss a day, you need to let your team know as far in advance as possible. Teams hold each other accountable.
 
-You also need to inform the Oakland chapter (via chat) so that facilitators know if you're going to miss an activity or event (e.g. home group).
+You also need to inform your house (via chat) so that facilitators know if you're going to miss an activity or event (e.g. house meetings).
 
-Letting your team and chapter know when you are unable to be present is part of our integrity agreement to respect each others' and our communal time. If you are late or absent and do not inform your team and chapter, it is a serious matter and is escalated to the moderator by the team.
+Letting your project team and house know when you are unable to be present is part of our integrity agreement to respect each others' and our communal time. If you are late or absent and do not inform your team and house, it is a serious matter and is escalated to the moderator by the team.
 
 #### What if I get sick?
 
